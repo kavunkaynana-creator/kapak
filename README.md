@@ -1,0 +1,2 @@
+# kapak
+TRMangaXYZ kapak görselleri
